@@ -1,1 +1,1 @@
-This work is licensed under the Creative Commons Attribution-ShareAlike 4.0 License.
+This work is licensed under the Creative Commons Attribution 4.0 International (CC BY 4.0)
